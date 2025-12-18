@@ -4,7 +4,7 @@
 
 <p align="center">
   <a href="https://tiktok.com/@dogletsky">tiktok</a>ㅤ✦ㅤ
-  <a href="https://sxnadow.straw.page/">strawpage</a>ㅤ✦ㅤ
+  <a href="https://manqle.straw.page/">strawpage</a>ㅤ✦ㅤ
   <a href="https://@lynnsanity.atabook.org/">atabook</a>
 </p>
 ㅤ
